@@ -1,7 +1,11 @@
 🎓 Technovations 2023 – Tech & Cultural Event for BSc Students
+
  gallery-[**https://drive.google.com/drive/folders/1ictYarZ-fjmHBEUXL0CXSoh-zMB3Ups0?usp=sharing**]
+ 
 📅 Date: September 8, 2023
+
 🏛️ Organized by: Final Year BSc Students (Team of 4 Organizers)
+
 📍 Location: [Aditya Degree College, Tuni], Department of BSc
 
 📌 About the Event
