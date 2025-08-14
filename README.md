@@ -52,7 +52,7 @@ Energetic participation, engaging hosts, and a lively atmosphere ensured a **mem
 ---
 
 ## 👥 Organizing Team  
-- **Pragada Durga Prasad**  
+- **Pragada Durga Prasad** (me)
 - **Dara Durga Prasad**  
 - **Talapanti Gowthami**  
 - **Vasamsetti Sushma**  
